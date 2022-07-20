@@ -7,7 +7,7 @@ Cheap web hosting can offer a variety of features at a lower price than more exp
 
 ### **_HostGator_**
 
-[![HostGator](get-web-hosting.png)](https://computersolve.com/cheap-web-hosting-service-2022-updated/)  
+[![HostGator](get-web-hostingg.png)](https://computersolve.com/cheap-web-hosting-service-2022-updated/)  
 
 HostGator Hosting has a reputation for offering faster speeds than most shared hosts. It’s also quite affordable and user-friendly for beginners. With tons of website templates, you can start your site in just minutes. HostGator is perfect for designers who want complete control over their site. Their plans are backed by a 99% uptime guarantee with an SLA promise that includes monthly data backups and one hour of free customer support per month.
 
